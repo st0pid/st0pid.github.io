@@ -1,1 +1,0 @@
-# st0pid.github.io
